@@ -1,0 +1,1 @@
+Only eat, if you like Burger. It is very tasty and self-satisfactory. DOn't think about gaining weight, JUST EAT.
